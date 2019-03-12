@@ -1,5 +1,4 @@
-# WARZONE-RAT-1.71-CRACKED-by-UNKNOWN
-WebMonitor-RAT-Cracked-by-Alcatraz3222
+# WebMonitor-RAT-Cracked-by-Alcatraz3222
 
 TRIAL DEMO : https://trial1.revcode.se/enterprise#/app/dashboard
 
